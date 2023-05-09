@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-####
+
 Good financial management is essential and effective for people's and organization's financial health and long-term success.
 
 My professional career is extensive in listening to the voice of the customer. I have spent 10+ years in customer service. I have managed complex business situations, including critical financial advisory. I excel when working in business environments that need to solve financial problems.
